@@ -20,3 +20,6 @@ cool
 >>>>>>> 80c8e76d859b9eaa9254cc98032964981e3f2400
 
 scheiss git, scheiss Linux
+
+
+fkjdsfkjdsbg
