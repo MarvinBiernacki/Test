@@ -3,7 +3,7 @@ Marvin Biernacki
 19 y/o
 Gera
 
-LOOOOOOOLLLLLLL
+LOOOOOOOLLLLLLLL
 
 <<<<<<< HEAD
 Marvin ist nicht Marvin
